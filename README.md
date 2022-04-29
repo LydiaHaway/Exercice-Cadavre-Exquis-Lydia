@@ -8,3 +8,5 @@ That will not be the most easier thing, but they will do their best and learn fr
 The next step is to find the others ones, but where should they go ?
 
 They knew that this horcrux belonged to the one whose code cannot be pronounced... no time to think if they wanted to thwart his plans, they had very little time to find the others. They set off towards the mountains of html where they had heard from a strange wizard belonging to the order of css that the second horcrux was down there.
+
+But there was a vile creature hidding in the water, guarding the door that'll lead them into the cave, waiting to drow our poor heroes with its tentacles! But thanks to their coding powers they defeated it and so they entered the cave! But what other **dangers** awaits them? :open_mouth:
